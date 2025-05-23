@@ -1,6 +1,6 @@
 # 云通机场官网地址
 
-最新地址：[yuntong.one](https://yuntong.one/#/?code=PMwOkFKh)
+最新地址：[yuntong.one](https://yuntong888.one/#/register?code=PMwOkFKh)
 
 ## 云通介绍
 
